@@ -1,2 +1,1 @@
-# diorizky
-progres kompre
+
